@@ -3,7 +3,7 @@ title: "Humble Bundle"
 date: 2021-12-12T20:20:36-08:00
 ---
 
-Looking for a gift for a geek this year?  7 days left on this "Hacking" Humble Bundle promo from *No Starch Press*
+Looking for a gift for a computer scientist?  7 days left on this giftable "Hacking" Humble Bundle promo from *No Starch Press*
 
 18 books in the bundle - 48,699.31 raised for charity so far: 
 https://www.humblebundle.com/books/hacking-by-no-starch-press-books
