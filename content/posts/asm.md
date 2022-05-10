@@ -1,6 +1,5 @@
 ---
 title: "Learning Assembly"
-date: 2022-05-06
 ---
 
 References: 
