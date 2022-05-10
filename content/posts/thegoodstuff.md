@@ -15,3 +15,4 @@ Soundtrack, thoughts:
 
 - _The Good Stuff_, Kenny Chesney : https://www.youtube.com/watch?v=lYQZJ9NUzYU
 - "...get wisdom: and with all thy getting get understanding" https://www.kingjamesbibleonline.org/Proverbs-4-7/
+"Wisdom is the principal thing; therefore get wisdom: and with all thy getting get understanding." Proverbs 4:7 (King James Version)
