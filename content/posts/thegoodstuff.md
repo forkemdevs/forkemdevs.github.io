@@ -1,3 +1,7 @@
+---
+title: "The Good Stuff"
+---
+
 Years ago I told a friend who was involved in cancer research how inspiring his volunteer work was.  He told me, sometimes we pick our causes, sometimes our causes pick us.
 
 Starting this page to keep a list of causes I've heard about Arizona State University computer science students being involved with since joining the program:
