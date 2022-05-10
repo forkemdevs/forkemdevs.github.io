@@ -9,8 +9,6 @@ Starting this page to keep a list of causes I've heard about Arizona State Unive
 - PCs for Refugees :  https://pcsforrefugees.com/
 - Knowledge Ark (online academy for refugees) : https://knowark.org/
 
-It's not just intention, but your direction. What's your direction?  
-
 Soundtrack, thoughts:
 
 - _The Good Stuff_, Kenny Chesney : https://www.youtube.com/watch?v=lYQZJ9NUzYU
