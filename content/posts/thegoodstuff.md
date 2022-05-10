@@ -15,3 +15,4 @@ Soundtrack, thoughts:
 
 - _The Good Stuff_, Kenny Chesney : https://www.youtube.com/watch?v=lYQZJ9NUzYU
 - "Wisdom is the principal thing; therefore get wisdom: and with all thy getting get understanding." Proverbs 4:7 (King James Version)
+- "Direction (which implies action), not intention, determines destination" (attribution unknown)
